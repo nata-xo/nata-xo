@@ -1,4 +1,4 @@
-## Hi there, why are you on my profile. Please leave now.
+## welcome to my profile, ig.
 
 <!--
 **nata-xo/nata-xo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
